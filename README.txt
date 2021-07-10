@@ -1,0 +1,1 @@
+En este portafolio usted podra encontrar mas detalles sobre mi, como mis proyectos y habilidades que voy teniendo.
